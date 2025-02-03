@@ -1,3 +1,0 @@
-MayTheQueryBeWithYou
-
-# MayTheQueryBeWithYou
